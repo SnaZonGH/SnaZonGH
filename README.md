@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SnaZonGH
+- 👀 I’m interested in ... Coding
+- 🌱 I’m currently learning ... Coding in general
+- 📫 How to reach me ... iheartfarts91@gmail.com
